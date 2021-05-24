@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NicolasFerreiraa
 - 👀 I’m interested in Encontrar novas oportunidades💻
 - 🌱 I’m currently learning Phyton🐍
-- 💞️ I’m looking to collaborate Noque for preciso🙂
+- 💞️ I’m looking collaborate Noque for preciso🙂
 - 📫 How to reach me 88 9816-5049📱
 
 <!---
