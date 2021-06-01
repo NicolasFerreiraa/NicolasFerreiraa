@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NicolasFerreiraa
 - 👀 I’m interested in Encontrar novas oportunidades💻
-- 🌱 I’m currently learning Phyton🐍
+- 🌱 I’m currently learning Phyton,Java script
 - 💞️ I’m looking collaborate Noque precisar🙂
 - 📫 How to reach me 88 9816-5049📱
 
